@@ -25,6 +25,10 @@
 
 game release date, 2026
 
+## iphone
+
+## ipad[O
+
 ## bose speaker
 
 [sonos era 100](https://a.co/d/jkN1h2l)
