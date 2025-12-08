@@ -27,7 +27,7 @@ game release date, 2026
 
 ## iphone
 
-## ipad[O
+## ipad 
 
 ## bose speaker
 
