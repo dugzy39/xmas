@@ -10,11 +10,12 @@
 
 ## dio buttons
 
-[buttons](https://a.co/d/i56x59Z)
+[button kit and mat](https://a.co/d/i56x59Z) \
+[buttons](https://a.co/d/2fvccyt)
 
 ## mobility kitchen chair
 
-[chair](https://a.co/d/ex8vw4l)
+[chair](https://a.co/d/ex8vw4l) \
 [updated wheels](https://a.co/d/eWUSZvc)
 
 ## dio jacket
@@ -25,14 +26,12 @@
 
 game release date, 2026
 
-## iphone
-
-## ipad 
-
 ## bose speaker
 
-[sonos era 100](https://a.co/d/jkN1h2l)
+[sonos era 100](https://a.co/d/7GffHB8)
 
-## socks and underwear
+<!--## socks
 
 [bombas giftcard](https://bombas.com/products/gift-card)
+
+--->
