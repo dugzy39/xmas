@@ -30,8 +30,27 @@ game release date, 2026
 
 [sonos era 100](https://a.co/d/7GffHB8)
 
-<!--## socks
+***
+
+## toaster oven
+
+[toaster oven, char](https://a.co/d/4gEGQHN)
+
+<!--
+
+## socks
 
 [bombas giftcard](https://bombas.com/products/gift-card)
 
---->
+-->
+## dog treats
+
+[treats1](https://a.co/d/eUBsrli) \
+[treats2, size small](https://a.co/d/9KMi843)
+
+## drill with bits
+
+<!--
+## steamer
+[steamer](https://a.co/d/cd9FIlu)
+-->
